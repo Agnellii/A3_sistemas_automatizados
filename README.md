@@ -1,1 +1,0 @@
-# A3_sistemas_automatizados
